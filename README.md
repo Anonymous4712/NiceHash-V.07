@@ -1,0 +1,1 @@
+# NiceHash-V.07
